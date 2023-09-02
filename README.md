@@ -6,4 +6,4 @@
 <img src="https://cdn.discordapp.com/attachments/1147506286242566305/1147509711768408174/screenshot916.png"/>
 
 # [dt](https://drive.google.com/drive/folders/10Zexq9fnSLRJBe6EjXwDdNg-TzixEKAT?usp=sharing)
-<img src="https://cdn.discordapp.com/attachments/1147506286242566305/1147514288785862728/screenshot917.png/>
+<img src="https://cdn.discordapp.com/attachments/1147506286242566305/1147514288785862728/screenshot917.png"/>
